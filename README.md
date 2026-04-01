@@ -52,7 +52,7 @@ Devenir un **Data Analyst / Data Scientist** capable d’aider les entreprises �
 
 ###  Me contacter
 
-Toujours ouvert à discuter, apprendre et collaborer 
+Email: ibrahima.diallo4@edu.univ-paris13.fr
 
 ---
 
